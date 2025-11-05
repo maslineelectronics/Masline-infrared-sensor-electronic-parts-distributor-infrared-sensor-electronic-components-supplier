@@ -1,0 +1,2 @@
+# Masline-infrared-sensor-electronic-parts-distributor-infrared-sensor-electronic-components-supplier
+Masline is a trusted infrared sensor electronic parts distributor and infrared sensor electronic components supplier, offering high-performance IR sensing solutions for automation, security, and industrial systems. With verified sourcing and global logistics, Masline ensures dependable infrared sensor supply worldwide.
